@@ -16,4 +16,4 @@ Invierto parte de mi tiempo después del trabajo en avanzar con mis estudios en 
 ## Puedes encontrar mis perfiles sociales en:
 
 - [Instagram](https://www.instagram.com/gmcp.dev/)
-- [LinkedIn](https://www.linkedin.com/in/gmcp1543/)
+- [LinkedIn](www.linkedin.com/in/gerald-caraballo)
